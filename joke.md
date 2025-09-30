@@ -1,0 +1,1 @@
+A drunken turtle challenged a horse to a race and bet his shell.
